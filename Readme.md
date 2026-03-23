@@ -1,2 +1,2 @@
-# THIS IS MY COURSE
+# THIS IS MY PRACTICE 
 Hey I am Dhruv
